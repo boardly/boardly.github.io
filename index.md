@@ -58,3 +58,8 @@ I may update our Privacy Policy from time to time. Thus, you are advised to revi
 Contact Us
 
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me.
+
+Deleting Account
+You are in control of your data. Please contact me via email added by me in Google Play or App Store and I'll delete your data and account permanently.
+
+I'm storing your email address that you've used to register to Boardly service.
